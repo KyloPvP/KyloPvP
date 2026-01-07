@@ -14,8 +14,8 @@ I've completed countless projects **big** commissions, **tiny** tweaks pouring e
 
 **Fun facts**:
 
-  • Got a cat who's probably better at pixel art than me
+   • Got a cat who's probably better at pixel art than me
   
-  • Obsessed with Mercedes engineering
+   • Obsessed with Mercedes engineering
   
-  • Gym, boxing, video editing
+   • Gym, boxing, video editing
